@@ -1,1 +1,1 @@
-anjarin dong puh
+ajarin dong puh sepuh
